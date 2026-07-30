@@ -1,1 +1,0 @@
-# stargazers-log
